@@ -87,3 +87,6 @@
 もう一度、聞きます。
 
 **君は誰？**
+
+[作品を読む](https://nomichi-yamazaki.github.io/kimiha-dare/)
+
